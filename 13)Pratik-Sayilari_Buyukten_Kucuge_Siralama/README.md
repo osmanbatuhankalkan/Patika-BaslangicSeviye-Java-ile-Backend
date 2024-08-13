@@ -1,0 +1,9 @@
+<img width="873" alt="Ekran Resmi 2024-08-13 16 15 23" src="https://github.com/user-attachments/assets/a4c2007f-ed7e-4112-ac66-650b3b1bffa7">
+<img width="1440" alt="Ekran Resmi 2024-08-13 16 24 43" src="https://github.com/user-attachments/assets/a6c883a8-f04a-405d-b887-f1d978d606b8">
+<img width="1440" alt="Ekran Resmi 2024-08-13 16 25 35" src="https://github.com/user-attachments/assets/8bc10e21-b0cc-45ae-9889-b6e17f87112c">
+<img width="372" alt="Ekran Resmi 2024-08-13 16 16 19" src="https://github.com/user-attachments/assets/ba4f8947-78ad-4a2f-a732-24eba24baaf1">
+<img width="417" alt="Ekran Resmi 2024-08-13 16 17 44" src="https://github.com/user-attachments/assets/bc1d7a79-0b01-4445-9d2d-d0ade32a42dc">
+<img width="358" alt="Ekran Resmi 2024-08-13 16 19 42" src="https://github.com/user-attachments/assets/bea2cb61-524d-48f7-b438-ea73b3c81262">
+<img width="366" alt="Ekran Resmi 2024-08-13 16 20 35" src="https://github.com/user-attachments/assets/fa95db7a-6303-4b6c-9036-8186fcc598cf">
+<img width="407" alt="Ekran Resmi 2024-08-13 16 21 39" src="https://github.com/user-attachments/assets/554ee868-2344-4064-802d-1aa024d5c1e5">
+<img width="409" alt="Ekran Resmi 2024-08-13 16 22 19" src="https://github.com/user-attachments/assets/f6f4bce7-a287-406f-8985-621cacbdada3">
